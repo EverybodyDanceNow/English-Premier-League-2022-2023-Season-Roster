@@ -1,1 +1,1 @@
-# English-Premier-League-2022-2023-Season-Roster
+Hello hello, I was bored so I guess I decided to make a EPL roster complete with all the new promoted teams from the Championship and Relegated ones for BBGM, no real players btw, complete with logo, abbreviation, team names obviously, stadium capacity, and jerseys, have fun!
